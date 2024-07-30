@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning at Sololearn 
 - 💞️ I’m looking to collaborate on web creation 
-- 📫 How to reach me ...
+- 📫 How to reach me +254713020146 or email mutindiian16@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: I also like playing video games and interaction 
 
